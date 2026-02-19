@@ -30,9 +30,10 @@ I’m a developer who loves bridging the gap between elegant UI and intelligent 
 ---
 
 ### 📫 Connect with Me
-* **Twitter/X:** [@sanidhysriofc](https://twitter.com/sanidhysriofc)
-* **Instagram:** [@sanidhy.exe](https://www.instagram.com/sanidhy.exe/)
-* **Discord:** [Join my server](https://discord.gg/YAJP5KGM)
+* **LinkedIn:** [Sanidhya Srivastava](https://www.linkedin.com/in/sanidhya-srivastava-403442300/) 💼
+* **Twitter/X:** [@sanidhysriofc](https://twitter.com/sanidhysriofc) 🐦
+* **Instagram:** [@sanidhy.exe](https://www.instagram.com/sanidhy.exe/) 📸
+* **Discord:** [Join my server](https://discord.gg/YAJP5KGM) 💬
 
 ---
 
